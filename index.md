@@ -2,7 +2,7 @@
 
 ### Despre mine
 
-Eu sunt Radu, si voi face un site ieftine pentru nevoile tale.
+Eu sunt Radu, si voi face un site ieftin pentru nevoile tale.
 
 ### Produse
 
